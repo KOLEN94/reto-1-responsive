@@ -1,0 +1,1 @@
+este es el dasifio 1 de platzi responsive desing
